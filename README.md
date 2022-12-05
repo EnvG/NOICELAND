@@ -1,0 +1,1 @@
+Макет взят [отсюда](https://www.figma.com/file/10NCr58WRzeNLOLwZ56uPY/Noiceland?node-id=0%3A1)
